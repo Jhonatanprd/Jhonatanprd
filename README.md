@@ -1,9 +1,11 @@
 ## Hi there 👋
-Jhonatan Yasmani Paredes Coca
+ME LLAMO :Jhonatan Yasmani Paredes Coca😄
 
-Ingenieria en Sistemas 
+ESTUDIO LA CARRERA DE INGENIERIA EN SISTEMAS 😐 
 
-Cree en ti, incluso cuando nadie mas lo haga.
+FRASE MOTIVACIONAL: Cree en ti, incluso cuando nadie mas lo haga.🫂♦︎
+
+PERSIGUIENDO MIS SUEÑOS Y MIS METAS ‼︎
 
 <!--
 **Jhonatanprd/Jhonatanprd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
