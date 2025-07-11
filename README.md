@@ -1,6 +1,8 @@
 ## Hi there 👋
 Jhonatan Yasmani Paredes Coca
+
 Ingenieria en Sistemas 
+
 Cree en ti, incluso cuando nadie mas lo haga.
 
 <!--
